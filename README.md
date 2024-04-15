@@ -1,2 +1,2 @@
 # portfolio
-make creativ portfolio with me 
+make creativ portfolio with us 
